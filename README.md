@@ -1,4 +1,5 @@
 # Viral Vue Promo Code SOFIA10 – Tested 10% OFF & Working Discount Code
+<img width="491" height="582" alt="viral-vue-promo-code-sofia10" src="https://github.com/user-attachments/assets/5c2ac6e1-29b9-46a4-8eef-6eb46de3d234" />
 
 
 Looking for a working **Viral Vue promo code** or **Viral Vue coupon code**? Use **SOFIA10** to save **10% OFF**, with discounts of up to **15% on annual plans**.
